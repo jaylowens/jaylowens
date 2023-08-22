@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jaylowens
 - 👀 I’m interested in sports, videogames and living life to the fullest
-- 🌱 I’m currently learning all skills needed to grow
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning skills needed to grow my market research and insights knowledge 
+- 💞️ I’m looking to collaborate in general
 - 📫 How to reach me johnlowensjr@gmail.com
 
 <!---
